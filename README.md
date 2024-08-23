@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @NOOBMASTER-08
 - 👀 I’m interested in cyber security
-- 🌱 I’m currently learning it
+- 🌱 I’m currently a second year Computer Science Postgraduate (MCA) at Banaras Hindu University
 - 💞️ I’m looking to collaborate on 
 - 📫 How to reach me @-ayushverma2559@gmail.com
 
